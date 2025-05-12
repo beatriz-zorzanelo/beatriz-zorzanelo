@@ -1,5 +1,5 @@
-## Hi there 👋
-
+opa!!bem vindo ao meu perfil😁
+meu nome e beatriz sou do 1b!
 <!--
 **beatriz-zorzanelo/beatriz-zorzanelo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
